@@ -1,0 +1,13 @@
+{
+  "showThemeCredit": false,
+  "name": "Daddy and the kids",
+  "shortDesc": "A blog about parenting for dads, from a father of 3 learning along the way.",
+  "url": "https://www.daddyandthekids.com",
+  "authorEmail": "ds@kammamuri.com",
+  "authorHandle": "@ds",
+  "authorName": "Dominic",
+  "enableThirdPartyComments": false,
+  "maxPostsPerPage": 5,
+  "paymentPointer": "todo",
+  "faviconPath": "/images/favicon.png"
+}
