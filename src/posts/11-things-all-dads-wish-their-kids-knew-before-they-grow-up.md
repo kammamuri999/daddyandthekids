@@ -45,11 +45,11 @@ Like a said in another post, you'll [grow smarter kids](/posts/how-to-raise-smar
 > Tony Robbins is a legend in the self help category. With his great charisma and attitude he has the ability to motivate and empower anyone.
 
 
-## 2. Keep your promises and be honest.
+## 2. Keep your promises and be honest
 
 Do what you say you will do. **Never make excuses.** Stop making excuses for why you couldn't do something, or why you weren’t able to accomplish something. If you make a promise, make sure you are going to stick to it. Don’t give excuses about why you couldn’t make it. Don’t put things off for later; do them now. Being reliable and trustworthy is so important, and making excuses makes your will power weaker, no matter what the excuse is. Honesty, on the same level is important because your destiny is in your hands.
 
-## 3. Respect nature and its gifts.
+## 3. Respect nature and its gifts
 
 Nature is all around you, so don't forget that you're a part of it.  Appreciate that these things are part of your life too. Give nature a little extra attention whenever you can, and talk about it with your kids.
 
@@ -82,7 +82,7 @@ References:
 [![The Psychology of Gratitude](https://www.amazon.co.uk/images/I/41xv6fmx1lL._SY291_BO1,204,203,200_QL40_ML2_.jpg)](https://amzn.to/3BvDJAj)
 
 
-> More expensive but for a reason: in depht scientific research about gratitude by Ph.D. Robert Emmons and Michael McCullough.
+> More difficult to read but for a reason: in depht scientific research about gratitude by Ph.D. Robert Emmons and Michael McCullough.
 
 
 * [Thanks!: How Practicing Gratitude Can Make You Happier](https://amzn.to/3BuG4LS)
@@ -102,17 +102,15 @@ An act of kindness to someone now, can pay a lot in the future, who knows.
 
 ### Suggested readings:
 
-<!-- 
-<a target="_blank" href="https://www.amazon.co.uk/gp/product/0143129279/ref=as_li_tl?ie=UTF8&camp=1634&creative=6738&creativeASIN=0143129279&linkCode=as2&tag=dominic8004-21&linkId=a536eb1a78cde019548c4c3632818f66">The Power of Kindness: The Unexpected Benefits of Leading a Compassionate Life</a>
+* [The Power of Kindness: The Unexpected Benefits of Leading a Compassionate Life](https://amzn.to/3yDbvlk)
 
-<a target="_blank"  href="https://www.amazon.co.uk/gp/product/0143129279/ref=as_li_tl?ie=UTF8&camp=1634&creative=6738&creativeASIN=0143129279&linkCode=as2&tag=dominic8004-21&linkId=adfdbfe72b0fbafaebacc28738892f5a"><img border="0" src="//ws-eu.amazon-adsystem.com/widgets/q?_encoding=UTF8&MarketPlace=GB&ASIN=0143129279&ServiceVersion=20070822&ID=AsinImage&WS=1&Format=_SL250_&tag=dominic8004-21" ></a>
-
-
-<a target="_blank" href="https://www.amazon.co.uk/gp/product/1928832008/ref=as_li_tl?ie=UTF8&camp=1634&creative=6738&creativeASIN=1928832008&linkCode=as2&tag=dominic8004-21&linkId=b33cb50edf21f79e7fa403dd0de3a431">The Hidden Power of Kindness: A Practical Handbook for Souls Who Dare to Transform the World, One Deed at a Time</a>
+[![The Power of Kindness](https://www.amazon.co.uk/images/I/41Ag2JSJTEL._SY291_BO1,204,203,200_QL40_ML2_.jpg)](https://amzn.to/3yDbvlk)
 
 
-<a target="_blank"  href="https://www.amazon.co.uk/gp/product/1928832008/ref=as_li_tl?ie=UTF8&camp=1634&creative=6738&creativeASIN=1928832008&linkCode=as2&tag=dominic8004-21&linkId=ed6c0dc6f84efd8c9c7daaa6218dd62b"><img border="0" src="//ws-eu.amazon-adsystem.com/widgets/q?_encoding=UTF8&MarketPlace=GB&ASIN=1928832008&ServiceVersion=20070822&ID=AsinImage&WS=1&Format=_SL250_&tag=dominic8004-21" ></a> -->
 
+* [The Hidden Power of Kindness: A Practical Handbook for Souls Who Dare to Transform the World, One Deed at a Time](https://amzn.to/3kP9JIS)
+
+[![The Hidden Power of Kindness](https://www.amazon.co.uk/images/I/415Rn3KRtnL._SY291_BO1,204,203,200_QL40_ML2_.jpg)](https://amzn.to/3kP9JIS)
 
 ## 5. Don't give up on your dreams, even in the face of adversity.
 
@@ -120,8 +118,6 @@ An act of kindness to someone now, can pay a lot in the future, who knows.
 
 If we can be consistent in our actions, then success will follow. We must decide what success looks like and then "just do it". Consistency is key. It’s easy to say that you will do something, but it’s not so easy to actually do it. To make sure you reach your goal, you have to be consistent in what you are doing and remind yourself why you want to achieve the goal that you set out for yourself. Think about your goal every day.
 
-
-<!-- <iframe width="560" height="315" src="https://www.youtube.com/embed/BBQb1SVPboI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe> -->
 
 Thanks to **the power of the compounding effect**, little by little you will go very far, in exponential increments!
 
@@ -170,14 +166,14 @@ Learn when to quit.
 
 ### Suggested reading:
 
-<!-- 
-<a target="_blank" href="https://www.amazon.co.uk/gp/product/0340708018/ref=as_li_tl?ie=UTF8&camp=1634&creative=6738&creativeASIN=0340708018&linkCode=as2&tag=dominic8004-21&linkId=b3e2fb401e526fe62f8ea2fa36f685df">Don't Sweat the Small Stuff: Simple ways to Keep the Little Things from Overtaking Your Life: Simple Ways to Keep the Little Things from Taking Over Your Life</a>
+* [Don't Sweat the Small Stuff: Simple ways to Keep the Little Things from Overtaking Your Life](https://amzn.to/3jF3qIK)
 
-<a target="_blank"  href="https://www.amazon.co.uk/gp/product/0340708018/ref=as_li_tl?ie=UTF8&camp=1634&creative=6738&creativeASIN=0340708018&linkCode=as2&tag=dominic8004-21&linkId=ca41b592f6900dca98a380c9b7b53d90"><img border="0" src="//ws-eu.amazon-adsystem.com/widgets/q?_encoding=UTF8&MarketPlace=GB&ASIN=0340708018&ServiceVersion=20070822&ID=AsinImage&WS=1&Format=_SL250_&tag=dominic8004-21" ></a> -->
+[![Don't Sweat the Small Stuff](https://www.amazon.co.uk/images/I/514cR8f5x4L._SX218_BO1,204,203,200_QL40_ML2_.jpg)](https://amzn.to/3jF3qIK)
+
 
 > After almost two decades since the original release of Don't Sweat the Small Stuff, Richard Carlson's insights on the meaning of life continue to be timeless. The book teaches us to focus on the 'now' and find balance by living through contentment. ― __Deepak Chopra__ 
 
-## 11. Smile more.
+## 11. Smile more
 
 **Don't get angry for the small things**. When you think how precious life is, you will start to see things differently. Don't take things so seriously. Consider LIFE seriously.
 

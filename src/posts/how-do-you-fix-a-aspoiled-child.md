@@ -3,7 +3,8 @@ title: How Do You Fix A Spoiled Child? Framework & 10 Steps To Make It Happen.
 date: '2021-06-30'
 tags:
   - parenting
-  - smart kids
+  - spoiled kids
+  - education
   - blog
 ---
 
@@ -25,32 +26,38 @@ This article will provide a few pointers on how to do so successfully and get th
 
 ## You may also want to check some helpful books about this subject:
 
-<!-- <a target="_blank"  href="https://www.amazon.co.uk/gp/product/1848123094/ref=as_li_tl?ie=UTF8&camp=1634&creative=6738&creativeASIN=1848123094&linkCode=as2&tag=dominic8004-21&linkId=af22fc637e39971360f4f6437cfdcdb4"><img border="0" src="//ws-eu.amazon-adsystem.com/widgets/q?_encoding=UTF8&MarketPlace=GB&ASIN=1848123094&ServiceVersion=20070822&ID=AsinImage&WS=1&Format=_SL160_&tag=dominic8004-21" ></a> -->
 
-[How To Talk So Kids Will Listen and Listen So Kids Will Talk](https://amzn.to/3iWXYPJ)  by Adele Faber.
+* [How To Talk So Kids Will Listen and Listen So Kids Will Talk](https://amzn.to/3kJZ3LO)  by Adele Faber.
+
+[![How To Talk So Kids Will Listen and Listen So Kids Will Talk](https://www.amazon.co.uk/images/I/51K-2f8UXOL._SY291_BO1,204,203,200_QL40_ML2_.jpg)](https://amzn.to/3kJZ3LO)
+
 
 > This book is really helpful for anything related to good communication with your kids. I read it twice and also borrowed it from my local library to take more notes. Number one.
 
-<!-- <a target="_blank"  href="https://www.amazon.co.uk/gp/product/0399184864/ref=as_li_tl?ie=UTF8&camp=1634&creative=6738&creativeASIN=0399184864&linkCode=as2&tag=dominic8004-21&linkId=e7e19d54aa0c2c16dfbc3bb8b075c92b"><img border="0" src="//ws-eu.amazon-adsystem.com/widgets/q?_encoding=UTF8&MarketPlace=GB&ASIN=0399184864&ServiceVersion=20070822&ID=AsinImage&WS=1&Format=_SL160_&tag=dominic8004-21" ></a> -->
 
-[The Me, Me, Me Epidemic: A Step-by-Step Guide to Raising Capable, Grateful Kids in an Over-Entitled World](https://amzn.to/3zMfnSa)
+[The Me, Me, Me Epidemic: A Step-by-Step Guide to Raising Capable, Grateful Kids in an Over-Entitled World](https://amzn.to/3gVIifp)
+
+[![Me, Me, Me Epidemic](https://www.amazon.co.uk/images/I/51VgHtE7-dL._SY291_BO1,204,203,200_QL40_ML2_.jpg)](https://amzn.to/3gVIifp)
 
 > A general approch to raise healthy humans, with practical tips.
 
-<!-- <a target="_blank"  href="https://www.amazon.co.uk/gp/product/0062247026/ref=as_li_tl?ie=UTF8&camp=1634&creative=6738&creativeASIN=0062247026&linkCode=as2&tag=dominic8004-21&linkId=d4ccc59974598526fe3c5e20280e582e"><img border="0" src="//ws-eu.amazon-adsystem.com/widgets/q?_encoding=UTF8&MarketPlace=GB&ASIN=0062247026&ServiceVersion=20070822&ID=AsinImage&WS=1&Format=_SL160_&tag=dominic8004-21" ></a> -->
-
-[The Opposite of Spoiled: Raising Kids Who Are Grounded, Generous, and Smart About Money](https://amzn.to/3BI4wKy)
 
 
-<!-- <a target="_blank"  href="https://www.amazon.co.uk/gp/product/0345548043/ref=as_li_tl?ie=UTF8&camp=1634&creative=6738&creativeASIN=0345548043&linkCode=as2&tag=dominic8004-21&linkId=697b34e89b7f5b8b6afa3009712e6b56"><img border="0" src="//ws-eu.amazon-adsystem.com/widgets/q?_encoding=UTF8&MarketPlace=GB&ASIN=0345548043&ServiceVersion=20070822&ID=AsinImage&WS=1&Format=_SL160_&tag=dominic8004-21" ></a> -->
+[The Opposite of Spoiled: Raising Kids Who Are Grounded, Generous, and Smart About Money](https://amzn.to/3gVgw2E)
 
-[No-Drama Discipline: The Whole-Brain Way to Calm the Chaos and Nurture Your Child's Developing Mind](https://amzn.to/3xbtIpt)
+[![The Opposite of Spoiled](https://www.amazon.co.uk/images/I/41F8IjX73wL._SY291_BO1,204,203,200_QL40_ML2_.jpg)](https://amzn.to/3gVgw2E)
+
+
+[No-Drama Discipline: The Whole-Brain Way to Calm the Chaos and Nurture Your Child's Developing Mind](https://amzn.to/3BBQfy8)
+
+[![No-Drama Discipline](https://www.amazon.co.uk/images/I/41cc6IcBAbL._SY291_BO1,204,203,200_QL40_ML2_.jpg)](https://amzn.to/3BBQfy8)
 
 > Focused on positive parenting.
 
-<!-- <a target="_blank"  href="https://www.amazon.co.uk/gp/product/1402242069/ref=as_li_tl?ie=UTF8&camp=1634&creative=6738&creativeASIN=1402242069&linkCode=as2&tag=dominic8004-21&linkId=3f657e7c9feb1c9bc8b60a1035b927c6"><img border="0" src="//ws-eu.amazon-adsystem.com/widgets/q?_encoding=UTF8&MarketPlace=GB&ASIN=1402242069&ServiceVersion=20070822&ID=AsinImage&WS=1&Format=_SL160_&tag=dominic8004-21" ></a> -->
 
-[How to Unspoil Your Child Fast: A Speedy, Complete Guide to Contented Children and Happy Parents](https://amzn.to/2WuhZFP)
+[How to Unspoil Your Child Fast: A Speedy, Complete Guide to Contented Children and Happy Parents](https://amzn.to/3yBmVG3)
+
+[![How to Unspoil Your Child Fast](https://www.amazon.co.uk/images/I/51RT2GVCTeL._SX355_BO1,204,203,200_.jpg)](https://amzn.to/3yBmVG3)
 
 > Appreciated by most, critiqued by someone who thinks his methods are not focused on positive parenting but more on severity, consequences and raising little soldiers. Truth often lies in the middle.
 
